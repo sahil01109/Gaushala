@@ -1,5 +1,4 @@
 Thanks for downloading this template!
 
-Template Name: APNI GAUSHALA
-Template URL: ABHI TIME ISKE LIYE
+Template Name: Baba Bharathhari Nath ji Gaushala 
 Author: SAHIL KUMAR & PRINCE RANA
